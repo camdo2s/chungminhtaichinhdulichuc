@@ -11,7 +11,7 @@
 # 
 
 # 2\. Hồ sơ chứng minh tài chính du lịch Úc gồm những gì?
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-lich-uc.html
 # Thông thường, bạn cần chuẩn bị các giấy tờ sau:
 
 # 
